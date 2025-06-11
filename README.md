@@ -1,5 +1,7 @@
 **SKRIPSI**
 <br>
 **CHARIS M.S.A**
+<br>
 **210605110083**
+<br>
 **UIN MAULANA MALIK IBRAHIM MALANG**
